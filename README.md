@@ -1,6 +1,6 @@
 ![image alt](https://github.com/Redvelvetcakee/Redvelvetcakee/blob/abd7fc9f4882640e25640e24fdb3472203b26bc5/sparkle.gif)
 ![image alt](https://github.com/Redvelvetcakee/Redvelvetcakee/blob/ff21063dd9769e24bd1839c0393f463d871a4935/yo1w4t.png)
-<img src="https://github.com/Redvelvetcakee/Redvelvetcakee/blob/f21ab12986831f44294f1ac8d9978ba48a5bbc6a/Kanade%20banner__fliter--dark-blue-sepia__channel--red__mode--normal.jpeg" width="800">
+<img src="https://github.com/Redvelvetcakee/Redvelvetcakee/blob/f21ab12986831f44294f1ac8d9978ba48a5bbc6a/Kanade%20banner__fliter--dark-blue-sepia__channel--red__mode--normal.jpeg" width="900">
 
 ![image alt](https://github.com/Redvelvetcakee/Redvelvetcakee/blob/2671bb124f5694ac4c00525da0e50594a925bbaf/tumblr_784e6a913796ca57e45eda59fd00ab4f_0f5bc6d6_1280__fliter--dark-blue-sepia__channel--red__mode--normal.png)
 **Redvelvetcakee/Redvelvetcakee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
