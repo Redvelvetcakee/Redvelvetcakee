@@ -3,3 +3,9 @@
 <img src="https://github.com/Redvelvetcakee/Redvelvetcakee/blob/cbb616320ebf9115c2eb77ac94e83a02936b929f/banner%202%20-%20Edited.jpg" width="900">
 ![image alt](https://github.com/Redvelvetcakee/Redvelvetcakee/blob/3626bd221e218e5a8594d23cfda67a74b2eae71b/tumblr_defa4e9b55199a7041b2c1d965fab97c_0558b7d4_1280.png)
 <div align="center"> <b> ‧₊˚ "𝐿𝑒𝑡'𝑠 𝑠𝑖𝑛𝑔 𝑎 𝑙𝑢𝑙𝑙𝑎𝑏𝑦 𝑡𝑜𝑔𝑒𝑡ℎ𝑒𝑟"‧₊˚ ── .✦  </div> </b>
+<div align="center"> ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ </div>
+
+
+ 
+ 𓏵‧₊˚ ┊ᛝ 𝑨𝒃𝒐𝒖𝒕 𝒎𝒆: 
+ ⤷ My name is Celeste, or you can call me Celes for short ଳ ‧₊˚ ⋅
