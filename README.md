@@ -5,7 +5,7 @@
 <img src="https://github.com/Redvelvetcakee/Redvelvetcakee/blob/cbb616320ebf9115c2eb77ac94e83a02936b929f/banner%202%20-%20Edited.jpg" width="900"> 
 <img src="https://github.com/Redvelvetcakee/Redvelvetcakee/blob/5b3aea3e1ff74d3ce3fcb6ccfe211ab3fc3f4268/tumblr_defa4e9b55199a7041b2c1d965fab97c_0558b7d4_1280.png">
 
-![Profile views](https://views.igorkowalczyk.dev/api/badge/Redvelvetcakee?style=flat&color=eabdb3&label=Cakes)
+![Profile views](https://views.igorkowalczyk.dev/api/badge/Redvelvetcakee?style=flat&color=eabdb3&label=ᴄᴀᴋᴇꜱ.✦˖)
 <div align="center"> <b> ‧₊˚ "𝐿𝑒𝑡'𝑠 𝑠𝑖𝑛𝑔 𝑎 𝑙𝑢𝑙𝑙𝑎𝑏𝑦 𝑡𝑜𝑔𝑒𝑡ℎ𝑒𝑟"‧₊˚ ── .✦  </div> </b>
 <div align="center"> ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ </div>
 
