@@ -97,8 +97,9 @@ ________________________________________________________________________________
 DNI - Do not interact list: <br>
 STRICTLY DNI if you: <br>
 dislike or are anti towards my f/os, my kins, or characters i'm currently into. <br>
- _Komaeda Nagito , Yoisaki Kanade , Tatsumaki Shion_
+ _Komaeda Nagito , Yoisaki Kanade , Tatsumaki Shion_ <br>
 hate, boycott, oppose, or are anti towards my OTP. <br>
+make fun , hate , or insult with people who are otakus
  
  I take my fictional interests pretty seriously.
 </details>
