@@ -99,11 +99,28 @@ STRICTLY DNI if you: <br>
 dislike or are anti towards my f/os, my kins, or characters i'm currently into. <br>
  _Komaeda Nagito , Yoisaki Kanade , Tatsumaki Shion_ <br>
 hate, boycott, oppose, or are anti towards my OTP. <br>
-make fun , hate , or insult with people who are otakus
+  I take my fictional interests pretty seriously.
+<br>
+ DNI if you: <br>
+are a/an rightists, homophobic, racist, show disrespect to any religions, rape / racist jokers, sexual jokers <br>
+romanticize problematic media/tropes/mental illnesses/self harm/physical sexual or emotional abuse/assault <br>
+fetishize foreign languages (use hieroglyphs for aesthetic etc) <br>
+ ship incest pedo & irl people <br>
+ pairing sibling coded characters <br>
+ sexualize minors/women (and men too) <br>
  
- I take my fictional interests pretty seriously.
+
+Whitewash / Blackwash characters <br>
+are a colorist / racist <br>
+
+ 
 </details>
-   
+
+   𓏵‧₊˚ ┊ᛝ Fandoms - Biases - Ships <br>
+   //still working on it...//
+
+   𓏵‧₊˚ ┊ᛝ Honorable mention!! <br>
+   //still working on it...//
  I'm still doing ts it's not done!!
 
 
