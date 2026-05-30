@@ -94,37 +94,35 @@ ________________________________________________________________________________
 𓏵‧₊˚ ┊ᛝ 𝗗𝗡𝗜 & 𝗜𝗪𝗖/𝗜𝗪𝗘𝗖 𝗹𝗶𝘀𝘁 <br>
   "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ"<br>
  ₊˚︶︶ꔫ︶︶‌｡˚ </summary> <br>
-DNI - Do not interact list: <br>
+𝗗𝗡𝗜 - 𝗗𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝗹𝗶𝘀𝘁 ─────୨ৎ .✦ ݁˖ <br>
  <br>
-STRICTLY DNI if you: <br>
-dislike or are anti towards my f/os, my kins, or characters i'm currently into. <br>
- _Komaeda Nagito , Yoisaki Kanade , Tatsumaki Shion_ <br>
-hate, boycott, oppose, or are anti towards my OTP. <br>
-  I take my fictional interests pretty seriously. <br>
+𝙎𝙏𝙍𝙄𝘾𝙏𝙇𝙔 𝘿𝙉𝙄 𝙞𝙛 𝙮𝙤𝙪: <br>
+ᴅɪꜱʟɪᴋᴇ ᴏʀ ᴀʀᴇ ᴀɴᴛɪ ᴛᴏᴡᴀʀᴅꜱ ᴍʏ ꜰ/ᴏꜱ, ᴍʏ ᴋɪɴꜱ, ᴏʀ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ ɪ'ᴍ ᴄᴜʀʀᴇɴᴛʟʏ ɪɴᴛᴏ. <br>
+ʜᴀᴛᴇ, ʙᴏʏᴄᴏᴛᴛ, ᴏᴘᴘᴏꜱᴇ, ᴏʀ ᴀʀᴇ ᴀɴᴛɪ ᴛᴏᴡᴀʀᴅꜱ ᴍʏ ᴏᴛᴘ. <br>
+⤷ <b> ʏᴇꜱ,  ɪ ᴛᴀᴋᴇ ᴍʏ ꜰɪᴄᴛɪᴏɴᴀʟ ɪɴᴛᴇʀᴇꜱᴛꜱ ᴘʀᴇᴛᴛʏ ꜱᴇʀɪᴏᴜꜱʟʏ. <br> </b>
 <br>
- DNI if you: <br>
-Romanticize problematic media , tropes , mental illnesses , self harm , physical sexual or emotional abuse, assault <br>
-Are a rightists, homophobic, colorist,  racist, show disrespect to any religions, rape / racist jokers, sexual jokers , pedophile <br>
+𝘿𝙉𝙄 𝙞𝙛 𝙮𝙤𝙪: <br>
+ʀᴏᴍᴀɴᴛɪᴄɪᴢᴇ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ᴍᴇᴅɪᴀ , ᴛʀᴏᴘᴇꜱ , ᴍᴇɴᴛᴀʟ ɪʟʟɴᴇꜱꜱᴇꜱ  , ꜱᴇʟꜰ ʜᴀʀᴍ , ᴘʜʏꜱɪᴄᴀʟ ꜱᴇxᴜᴀʟ ᴏʀ ᴇᴍᴏᴛɪᴏɴᴀʟ ᴀʙᴜꜱᴇ , ᴀꜱꜱᴀᴜʟᴛ <br>
+ᴀʀᴇ ᴀ ʀɪɢʜᴛɪꜱᴛꜱ, ʜᴏᴍᴏᴘʜᴏʙɪᴄ, ᴄᴏʟᴏʀɪꜱᴛ,  ʀᴀᴄɪꜱᴛ, ꜱʜᴏᴡ ᴅɪꜱʀᴇꜱᴘᴇᴄᴛ ᴛᴏ ᴀɴʏ ʀᴇʟɪɢɪᴏɴꜱ, ʀᴀᴘᴇ / ʀᴀᴄɪꜱᴛ ᴊᴏᴋᴇʀꜱ, ꜱᴇxᴜᴀʟ ᴊᴏᴋᴇʀꜱ , ᴘᴇᴅᴏᴘʜɪʟᴇ <br>
 <br>
-sexualize minors , women (and men too)
- Whitewash , Blackwash characters <br>
-pairing sibling coded characters / Hate yume shippers <br>
-Invalidates A Person's Pronouns , Gender , Identity <br>
+ꜱᴇxᴜᴀʟɪᴢᴇ ᴍɪɴᴏʀꜱ , ᴡᴏᴍᴇɴ (ᴀɴᴅ ᴍᴇɴ ᴛᴏᴏ) <br>
+ᴡʜɪᴛᴇᴡᴀꜱʜ , ʙʟᴀᴄᴋᴡᴀꜱʜ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ <br>
+ᴘᴀɪʀɪɴɢ ꜱɪʙʟɪɴɢ ᴄᴏᴅᴇᴅ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ / ʜᴀᴛᴇ ʏᴜᴍᴇ ꜱʜɪᴘᴘᴇʀꜱ <br>
+ᴀʀᴇ ᴀ ʏᴜᴍᴇ ꜱʜɪᴘᴘᴇʀ ʙᴜᴛ ɢᴀᴛᴇᴋᴇᴇᴘ ʏᴏᴜʀ ꜰ/ᴏꜱ
+ɪɴᴠᴀʟɪᴅᴀᴛᴇꜱ ᴀ ᴘᴇʀꜱᴏɴ'ꜱ ᴘʀᴏɴᴏᴜɴꜱ , ɢᴇɴᴅᴇʀ , ɪᴅᴇɴᴛɪᴛʏ <br>
 <br>
-Are close-minded, have double standards or ignorant and hypocritical <br>
+ᴀʀᴇ ᴄʟᴏꜱᴇ-ᴍɪɴᴅᴇᴅ, ʜᴀᴠᴇ ᴅᴏᴜʙʟᴇ ꜱᴛᴀɴᴅᴀʀᴅꜱ ᴏʀ ɪɢɴᴏʀᴀɴᴛ ᴀɴᴅ ʜʏᴘᴏᴄʀɪᴛɪᴄᴀʟ <br>
 <br>
-Pro shippers that are shipping taboo ships <br>
-For example : ship incest, toxic relationship, abuse, large age gap <br>
+ᴘʀᴏ ꜱʜɪᴘᴘᴇʀꜱ ᴛʜᴀᴛ ᴀʀᴇ ꜱʜɪᴘᴘɪɴɢ ᴛᴀʙᴏᴏ ꜱʜɪᴘꜱ <br>
+ꜰᴏʀ ᴇxᴀᴍᴘʟᴇ : ꜱʜɪᴘ ɪɴᴄᴇꜱᴛ, ᴛᴏxɪᴄ ʀᴇʟᴀᴛɪᴏɴꜱʜɪᴘ, ᴀʙᴜꜱᴇ, <b> ᴠᴇʀʏ ʟᴀʀɢᴇ </b> ᴀɢᴇ ɢᴀᴘ <br>
 
-Pro shippers that use "it's fiction" to justify everything, even knowing that the couple is violating ethical standards. <br>
+ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ ᴡʜᴏ ᴜꜱᴇ "ɪᴛ'ꜱ ꜰɪᴄᴛɪᴏɴ" ᴛᴏ ᴊᴜꜱᴛɪꜰʏ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ꜱʜɪᴘꜱ, ᴇᴠᴇɴ ᴡʜᴇɴ ᴛʜᴇʏ ɪɴᴠᴏʟᴠᴇ ᴜɴᴇᴛʜɪᴄᴀʟ ᴅʏɴᴀᴍɪᴄꜱ <br>
 <br>
-Dark shippers that supports dark ships irl <br>
-//This does not includes all pro shippers or dark shippers, I personally thinks that not all pro/dark shippers are bad// <br>
-If you're a pro shipper or dark shipper but don't engage with any of the ships mentioned above, I'd still prefer you to be on my IWEC/IWC list! <br>
+ᴅᴀʀᴋ ꜱʜɪᴘᴘᴇʀꜱ ᴛʜᴀᴛ ꜱᴜᴘᴘᴏʀᴛꜱ ᴅᴀʀᴋ ꜱʜɪᴘꜱ ɪʀʟ <br>
+//ᴛʜɪꜱ ᴅᴏᴇꜱ ɴᴏᴛ ɪɴᴄʟᴜᴅᴇꜱ ᴀʟʟ ᴘʀᴏ ꜱʜɪᴘᴘᴇʀꜱ ᴏʀ ᴅᴀʀᴋ ꜱʜɪᴘᴘᴇʀꜱ, ɪ ᴘᴇʀꜱᴏɴᴀʟʟʏ ᴛʜɪɴᴋꜱ ᴛʜᴀᴛ ɴᴏᴛ ᴀʟʟ ᴘʀᴏ/ᴅᴀʀᴋ ꜱʜɪᴘᴘᴇʀꜱ ᴀʀᴇ ʙᴀᴅ// <br>
+ɪꜰ ʏᴏᴜ'ʀᴇ ᴀ ᴘʀᴏ ꜱʜɪᴘᴘᴇʀ ᴏʀ ᴅᴀʀᴋ ꜱʜɪᴘᴘᴇʀ ʙᴜᴛ ᴅᴏɴ'ᴛ ᴇɴɢᴀɢᴇ ᴡɪᴛʜ ᴀɴʏ ᴏꜰ ᴛʜᴇ ꜱʜɪᴘꜱ ᴍᴇɴᴛɪᴏɴᴇᴅ ᴀʙᴏᴠᴇ, ɪ'ᴅ ꜱᴛɪʟʟ ᴘʀᴇꜰᴇʀ ʏᴏᴜ ᴛᴏ ʙᴇ ᴏɴ ᴍʏ ɪᴡᴇᴄ/ɪᴡᴄ ʟɪꜱᴛ! <br>
 <br>
-<b> And DNI too if you defend or support any of above. </b>
-
-
+<b> ᴀɴᴅ ᴅɴɪ ᴛᴏᴏ ɪꜰ ʏᴏᴜ ᴅᴇꜰᴇɴᴅ ᴏʀ ꜱᴜᴘᴘᴏʀᴛ ᴀɴʏ ᴏꜰ ᴀʙᴏᴠᴇ. </b>
  
 
 
