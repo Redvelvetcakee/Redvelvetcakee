@@ -95,23 +95,39 @@ ________________________________________________________________________________
   "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ"<br>
  ₊˚︶︶ꔫ︶︶‌｡˚ </summary> <br>
 DNI - Do not interact list: <br>
+ <br>
 STRICTLY DNI if you: <br>
 dislike or are anti towards my f/os, my kins, or characters i'm currently into. <br>
  _Komaeda Nagito , Yoisaki Kanade , Tatsumaki Shion_ <br>
 hate, boycott, oppose, or are anti towards my OTP. <br>
-  I take my fictional interests pretty seriously.
+  I take my fictional interests pretty seriously. <br>
 <br>
  DNI if you: <br>
-are a/an rightists, homophobic, racist, show disrespect to any religions, rape / racist jokers, sexual jokers <br>
-romanticize problematic media/tropes/mental illnesses/self harm/physical sexual or emotional abuse/assault <br>
-fetishize foreign languages (use hieroglyphs for aesthetic etc) <br>
- ship incest pedo & irl people <br>
- pairing sibling coded characters <br>
- sexualize minors/women (and men too) <br>
+Romanticize problematic media , tropes , mental illnesses , self harm , physical sexual or emotional abuse, assault <br>
+Are a rightists, homophobic, colorist,  racist, show disrespect to any religions, rape / racist jokers, sexual jokers , pedophile <br>
+<br>
+sexualize minors , women (and men too)
+ Whitewash , Blackwash characters <br>
+pairing sibling coded characters / Hate yume shippers <br>
+Invalidates A Person's Pronouns , Gender , Identity <br>
+<br>
+Are close-minded, have double standards or ignorant and hypocritical <br>
+<br>
+Pro shippers that are shipping taboo ships <br>
+For example : ship incest, toxic relationship, abuse, large age gap <br>
+
+Pro shippers that use "it's fiction" to justify everything, even knowing that the couple is violating ethical standards. <br>
+<br>
+Dark shippers that supports dark ships irl <br>
+//This does not includes all pro shippers or dark shippers, I personally thinks that not all pro/dark shippers are bad// <br>
+If you're a pro shipper or dark shipper but don't engage with any of the ships mentioned above, I'd still prefer you to be on my IWEC/IWC list! <br>
+<br>
+<b> And DNI too if you defend or support any of above. </b>
+
+
  
 
-Whitewash / Blackwash characters <br>
-are a colorist / racist <br>
+
 
  
 </details>
