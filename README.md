@@ -96,13 +96,15 @@ ________________________________________________________________________________
   "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ"<br>
  ₊˚︶︶ꔫ︶︶‌｡˚ </summary> <br>
  <details> 
-<summary> _𝗗𝗡𝗜_ <br>
- ✦. 𝗗𝗼 𝗻𝗼𝘁 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝗹𝗶𝘀𝘁 .✦ <br>
-₊☆𓂃·₊˚౨ৎ˚₊𓂃☆·₊ </summary>
+<summary> <b> I. </b> 𝗗𝗡𝗜 <br>
+ ✦. 𝑫𝒐 𝒏𝒐𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕 𝒍𝒊𝒔𝒕 .✦ <br>
+ʚ• ˗ˋ୨♡୧ˊ˗ •ɞ </summary>
  <br>
 𝙎𝙏𝙍𝙄𝘾𝙏𝙇𝙔 𝘿𝙉𝙄 𝙞𝙛 𝙮𝙤𝙪: <br>
 𓏵◞ ᴅɪꜱʟɪᴋᴇ ᴏʀ ᴀʀᴇ ᴀɴᴛɪ ᴛᴏᴡᴀʀᴅꜱ ᴍʏ ꜰ/ᴏꜱ, ᴍʏ ᴋɪɴꜱ, ᴏʀ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ ɪ'ᴍ ᴄᴜʀʀᴇɴᴛʟʏ ɪɴᴛᴏ. <br>
+ ⤷  ꜱᴜᴄʜ ᴀꜱ ᴋᴏᴍᴀᴇᴅᴀ ɴᴀɢɪᴛᴏ , ʏᴏɪꜱᴀᴋɪ ᴋᴀɴᴀᴅᴇ , ᴛᴀᴛꜱᴜᴍᴀᴋɪ ꜱʜɪᴏɴ 
 𓏵◞ ʜᴀᴛᴇ, ʙᴏʏᴄᴏᴛᴛ, ᴏᴘᴘᴏꜱᴇ, ᴏʀ ᴀʀᴇ ᴀɴᴛɪ ᴛᴏᴡᴀʀᴅꜱ ᴍʏ ᴏᴛᴘ. <br>
+𓏵◞ ᴀʀᴇ ɪɴᴛᴏ ᴍʏ ɴᴏᴛᴘ <br>
 ⤷ <b> ʏᴇꜱ,  ɪ ᴛᴀᴋᴇ ᴍʏ ꜰɪᴄᴛɪᴏɴᴀʟ ɪɴᴛᴇʀᴇꜱᴛꜱ ᴘʀᴇᴛᴛʏ ꜱᴇʀɪᴏᴜꜱʟʏ. <br> </b>
  <br>
  ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
@@ -118,7 +120,6 @@ ________________________________________________________________________________
 𓏵◞ ɪɴᴠᴀʟɪᴅᴀᴛᴇꜱ ᴀ ᴘᴇʀꜱᴏɴ'ꜱ ᴘʀᴏɴᴏᴜɴꜱ , ɢᴇɴᴅᴇʀ , ɪᴅᴇɴᴛɪᴛʏ <br>
 <br>
 𓏵◞ ᴀʀᴇ ᴄʟᴏꜱᴇ-ᴍɪɴᴅᴇᴅ, ʜᴀᴠᴇ ᴅᴏᴜʙʟᴇ ꜱᴛᴀɴᴅᴀʀᴅꜱ ᴏʀ ɪɢɴᴏʀᴀɴᴛ ᴀɴᴅ ʜʏᴘᴏᴄʀɪᴛɪᴄᴀʟ <br>
-<br>
 𓏵◞ ᴘʀᴏ ꜱʜɪᴘᴘᴇʀꜱ ᴀɴᴅ ᴅᴀʀᴋ ꜱʜɪᴘᴘᴇʀꜱ. <br>
  <br>
 
@@ -126,10 +127,23 @@ ________________________________________________________________________________
 </details>
 
 <details>
-<summary>_𝗜𝗪𝗘𝗖/𝗜𝗪𝗖_ <br>
-✦. 𝗜𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗲𝘅𝘁𝗿𝗲𝗺𝗲 𝗰𝗮𝘂𝘁𝗶𝗼𝗻 / 𝗜𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗰𝗮𝘂𝘁𝗶𝗼𝗻 𝗹𝗶𝘀𝘁 .✦ <br>
- ₊☆𓂃·₊˚౨ৎ˚₊𓂃☆·₊</summary>
- //hehehehe lol im still doing it!!//
+<summary> <b> II. </b> 𝗜𝗪𝗘𝗖/𝗜𝗪𝗖 <br>
+✦. 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕 𝒘𝒊𝒕𝒉 𝒆𝒙𝒕𝒓𝒆𝒎𝒆 𝒄𝒂𝒖𝒕𝒊𝒐𝒏 / 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕 𝒘𝒊𝒕𝒉 𝒄𝒂𝒖𝒕𝒊𝒐𝒏 𝒍𝒊𝒔𝒕 .✦ <br>
+ ʚ• ˗ˋ୨♡୧ˊ˗ •ɞ</summary>
+ IWEC: <br>
+ People who have the same f/os as me , as I said before , I'm a non-sharing yumeshipper <br>
+ Below 12 years old and above 18 years old <br>
+ ⤷ Unless I've already known you before <br>
+ <br>
+People who are into switch dynamics for my OTP. <br>
+ All x char shippers <br>
+ <br>
+!!For Saihate station : Haru x Shion shippers!! <br>
+⤷ I'm sorry but I prefer Shion x Haru... <br>
+<br>
+Please IWEC if you're my classmate , or schoolmate <br>
+Regardless how close we are , please be careful when you wanna interact with me on social space + especially when I'm with my online friends.. <br>
+ 
 </details>
 
 
