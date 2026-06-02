@@ -89,6 +89,7 @@ ________________________________________________________________________________
    <br>
    𓏵◞ ɪ ᴠᴇɴᴛ ᴀ ʟᴏᴛ ꜱᴏᴍᴇᴛɪᴍᴇꜱ ᴡʜᴇɴ ᴡᴇ'ʀᴇ ᴄʟᴏꜱᴇ , ʏᴇꜱ... ɪ ʜᴏᴘᴇ ʏᴏᴜ ᴅᴏɴ'ᴛ ᴍɪɴᴅ ᴍᴇ ᴠᴇɴᴛɪɴɢ <br>
    ʙᴜᴛ ɪꜰ ʏᴏᴜ ᴅᴏ ᴍɪɴᴅ , ᴘʟᴇᴀꜱᴇ ᴛᴇʟʟ ᴍᴇ! </br>
+  ᴀɴᴅ ʟᴀꜱᴛʟʏ, ɪ'ᴍ ɴᴏᴛ ᴠᴇʀʏ ᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ɪɴ ᴛʜʀᴇᴇ-ᴘᴇʀꜱᴏɴ ɢʀᴏᴜᴘꜱ, ᴀꜱ ɪ ᴏꜰᴛᴇɴ ᴇɴᴅ ᴜᴘ ꜰᴇᴇʟɪɴɢ ʟᴇꜰᴛ ᴏᴜᴛ <br>
    </details> 
 "𝑷𝒍𝒆𝒂𝒔𝒆 𝒕𝒂𝒌𝒆 𝒚𝒐𝒖𝒓 𝒕𝒊𝒎𝒆 𝒓𝒆𝒂𝒅𝒊𝒏𝒈 𝒕𝒉𝒆 𝒔𝒖𝒎𝒎𝒂𝒓𝒚 𝒂𝒃𝒐𝒗𝒆 𝒃𝒆𝒇𝒐𝒓𝒆 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒏𝒈 𝒘𝒊𝒕𝒉 𝒎𝒆" <br>
 <br>
@@ -178,60 +179,105 @@ ________________________________________________________________________________
  𓏵‧₊˚ ┊ᛝ 𝗙𝗮𝗻𝗱𝗼𝗺𝘀 - 𝗕𝗶𝗮𝘀𝗲𝘀 - 𝗦𝗵𝗶𝗽𝘀 <br>
   "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ" <br>
 ₊˚︶︶ꔫ︶︶‌｡˚ </summary> <br>
-<pre> Some fandoms that have captured my attention lately and comments about it!!
- Most of my fictional interests come from video games.
+<pre> 𝑺𝒐𝒎𝒆 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 𝒕𝒉𝒂𝒕 𝒉𝒂𝒗𝒆 𝒄𝒂𝒑𝒕𝒖𝒓𝒆𝒅 𝒎𝒚 𝒂𝒕𝒕𝒆𝒏𝒕𝒊𝒐𝒏 𝒍𝒂𝒕𝒆𝒍𝒚 𝒂𝒏𝒅 𝒄𝒐𝒎𝒎𝒆𝒏𝒕𝒔 𝒂𝒃𝒐𝒖𝒕 𝒊𝒕!!  
+ 𝑴𝒐𝒔𝒕 𝒐𝒇 𝒎𝒚 𝒇𝒊𝒄𝒕𝒊𝒐𝒏𝒂𝒍 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒄𝒐𝒎𝒆 𝒇𝒓𝒐𝒎 𝒗𝒊𝒅𝒆𝒐 𝒈𝒂𝒎𝒆𝒔. 
+ 。゜•┈꒰ა ✩ ໒꒱┈•  ゜｡
 </pre>
  <br>
- <b> Saihate Station </b> <br>
- " I personally think this game is so amazing (╥‸╥) , the illustation and the sprite is very pretty!! It's just my style! <br>
- Literally I got addicted to it these days , both gameplay and the plot is so so cool!! I feel bad for my baby Shion... " <br>
+ <details> 
+  <summary>꒰ྀི১ 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐈'𝐦 𝐢𝐧𝐭𝐨 𝐭𝐡𝐞 𝐦𝐨𝐬𝐭 ໒꒱ིྀ<br>
+  ʚ• ˗ˋ୨♡୧ˊ˗ •ɞ </summary>
+𓏵◞ <b> ꜱᴀɪʜᴀᴛᴇ ꜱᴛᴀᴛɪᴏɴ </b> <br>
+ " ɪ ᴘᴇʀꜱᴏɴᴀʟʟʏ ᴛʜɪɴᴋ ᴛʜɪꜱ ɢᴀᴍᴇ ɪꜱ ꜱᴏ ᴀᴍᴀᴢɪɴɢ (╥‸╥) , ᴛʜᴇ ɪʟʟᴜꜱᴛᴀᴛɪᴏɴ ᴀɴᴅ ᴛʜᴇ ꜱᴘʀɪᴛᴇ ɪꜱ ᴠᴇʀʏ ᴘʀᴇᴛᴛʏ!! ɪᴛ'ꜱ ᴊᴜꜱᴛ ᴍʏ ꜱᴛʏʟᴇ! <br>
+ ʟɪᴛᴇʀᴀʟʟʏ ɪ ɢᴏᴛ ᴀᴅᴅɪᴄᴛᴇᴅ ᴛᴏ ɪᴛ ᴛʜᴇꜱᴇ ᴅᴀʏꜱ , ʙᴏᴛʜ ɢᴀᴍᴇᴘʟᴀʏ ᴀɴᴅ ᴛʜᴇ ᴘʟᴏᴛ ɪꜱ ꜱᴏ ꜱᴏ ᴄᴏᴏʟ!! ɪ ꜰᴇᴇʟ ʙᴀᴅ ꜰᴏʀ ᴍʏ ʙᴀʙʏ ꜱʜɪᴏɴ... " <br>
  <br> 
- " I've only played the Saihate Station , but I've watched the Twilight Railway gameplay too...because I'm broke <br>
- For the Twilight Railway , it changed my perspective on Shion " <br>
- " p/s: I've also played "Can't escape the train without XXX!?" too hehe..." <br>
+ " ɪ'ᴠᴇ ᴏɴʟʏ ᴘʟᴀʏᴇᴅ ᴛʜᴇ ꜱᴀɪʜᴀᴛᴇ ꜱᴛᴀᴛɪᴏɴ , ʙᴜᴛ ɪ'ᴠᴇ ᴡᴀᴛᴄʜᴇᴅ ᴛʜᴇ ᴛᴡɪʟɪɢʜᴛ ʀᴀɪʟᴡᴀʏ ɢᴀᴍᴇᴘʟᴀʏ ᴛᴏᴏ...ʙᴇᴄᴀᴜꜱᴇ ɪ'ᴍ ʙʀᴏᴋᴇ <br>
+ ꜰᴏʀ ᴛʜᴇ ᴛᴡɪʟɪɢʜᴛ ʀᴀɪʟᴡᴀʏ , ɪᴛ ᴄʜᴀɴɢᴇᴅ ᴍʏ ᴘᴇʀꜱᴘᴇᴄᴛɪᴠᴇ ᴏɴ ꜱʜɪᴏɴ " <br>
+ " ᴘ/ꜱ: ɪ'ᴠᴇ ᴀʟꜱᴏ ᴘʟᴀʏᴇᴅ "ᴄᴀɴ'ᴛ ᴇꜱᴄᴀᴘᴇ ᴛʜᴇ ᴛʀᴀɪɴ ᴡɪᴛʜᴏᴜᴛ xxx!?" ᴛᴏᴏ ʜᴇʜᴇ..." <br>
  <br>
-<b>Bias :</b> Tatsunami Shion <br>
- <b>Ships :</b> Shion x Haru , Haru x Aoi | But I prefer Shion x Haru more <br>
- <br>
- ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
- <br>
- <b> Danganronpa </b> <br>
- " I haven't played the game yet , but I've watched the anime + game summary (but honestly it looks kinda boring tho , since it's an old game) <br>
- But the character's lore really got my attention , pretty good tbh. I'm mostly into the SDR2 series " <br>
- <br>
- <b>Bias :</b> Danganronpa 1 : Maizono Sayaka , Celestia Ludenberg (aka Yasuhiro Taeko) <br>
- Danganronpa 2 : Nanami Chiaki , Komaeda Nagito , Kamukura Izuru <br>
- Danganronpa v3 : Tojo Kirumi <br>
- <br>
- <b>Ships :</b> KomaHina , KamuKoma , HinaNami , KomaNami , KamuNami <br>
+𓏵◞<b>ʙɪᴀꜱ :</b> ᴛᴀᴛꜱᴜɴᴀᴍɪ ꜱʜɪᴏɴ <br>
+𓏵◞ <b>ꜱʜɪᴘꜱ :</b> ꜱʜɪᴏɴ x ʜᴀʀᴜ , ʜᴀʀᴜ x ᴀᴏɪ | ʙᴜᴛ ɪ ᴘʀᴇꜰᴇʀ ꜱʜɪᴏɴ x ʜᴀʀᴜ ᴍᴏʀᴇ <br>
  <br>
  ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
  <br>
- <b> Project Sekai </b> <br>
- " Well...I've played the game for over a year , the biggest reason why I'm still in the fandom is because of the characters (mostly Kanade) and the gameplay.. <br>
- " The gacha system is absolute trash...I play until my eyes and hands hurt for nothing... " <br>
- though I'd say I love Sega once Kanade comes home but *sigh* <br>
+ 𓏵◞<b> ᴅᴀɴɢᴀɴʀᴏɴᴘᴀ </b> <br>
+ " ɪ ʜᴀᴠᴇɴ'ᴛ ᴘʟᴀʏᴇᴅ ᴛʜᴇ ɢᴀᴍᴇ ʏᴇᴛ , ʙᴜᴛ ɪ'ᴠᴇ ᴡᴀᴛᴄʜᴇᴅ ᴛʜᴇ ᴀɴɪᴍᴇ + ɢᴀᴍᴇ ꜱᴜᴍᴍᴀʀʏ (ʙᴜᴛ ʜᴏɴᴇꜱᴛʟʏ ɪᴛ ʟᴏᴏᴋꜱ ᴋɪɴᴅᴀ ʙᴏʀɪɴɢ ᴛʜᴏ , ꜱɪɴᴄᴇ ɪᴛ'ꜱ ᴀɴ ᴏʟᴅ ɢᴀᴍᴇ) <br>
+ ʙᴜᴛ ᴛʜᴇ ᴄʜᴀʀᴀᴄᴛᴇʀ'ꜱ ʟᴏʀᴇ ʀᴇᴀʟʟʏ ɢᴏᴛ ᴍʏ ᴀᴛᴛᴇɴᴛɪᴏɴ , ᴘʀᴇᴛᴛʏ ɢᴏᴏᴅ ᴛʙʜ. ɪ'ᴍ ᴍᴏꜱᴛʟʏ ɪɴᴛᴏ ᴛʜᴇ ꜱᴅʀ2 ꜱᴇʀɪᴇꜱ " <br>
  <br>
- <b>Bias :</b> Yoisaki Kanade , Hinomori Shiho | but I like Kanade more!! <br>
- <b> Ships :</b> TyAkt (Toya x Akito) <br>
+𓏵◞ <b>ʙɪᴀꜱ :</b> ᴅᴀɴɢᴀɴʀᴏɴᴘᴀ 1 : ᴍᴀɪᴢᴏɴᴏ ꜱᴀʏᴀᴋᴀ , ᴄᴇʟᴇꜱᴛɪᴀ ʟᴜᴅᴇɴʙᴇʀɢ (ᴀᴋᴀ ʏᴀꜱᴜʜɪʀᴏ ᴛᴀᴇᴋᴏ) <br>
+ ᴅᴀɴɢᴀɴʀᴏɴᴘᴀ 2 : ɴᴀɴᴀᴍɪ ᴄʜɪᴀᴋɪ , ᴋᴏᴍᴀᴇᴅᴀ ɴᴀɢɪᴛᴏ , ᴋᴀᴍᴜᴋᴜʀᴀ ɪᴢᴜʀᴜ <br>
+ ᴅᴀɴɢᴀɴʀᴏɴᴘᴀ ᴠ3 : ᴛᴏᴊᴏ ᴋɪʀᴜᴍɪ <br>
  <br>
- ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
- <br>
- <b>Into the Forest of Fireflies' Light </b> <br>
- " This manga / anime is so lovely yes!! But honestly I feel sad for them , if only Gin haven't touched that kid :( <br>
-  But at least they could hug each other..." <br>
- <b> Bias :</b> None <br>
- <b> Ships :</b> Obviously, Gin x Hotaru <br>
+𓏵◞ <b>ꜱʜɪᴘꜱ :</b> ᴋᴏᴍᴀʜɪɴᴀ , ᴋᴀᴍᴜᴋᴏᴍᴀ , ʜɪɴᴀɴᴀᴍɪ  <br>
  <br>
  ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
  <br>
- <b> Cells at work! </b> <br>
- // imma write this later my hands hurt..//
+𓏵◞ <b> ᴘʀᴏᴊᴇᴄᴛ ꜱᴇᴋᴀɪ </b> <br>
+ " ᴡᴇʟʟ...ɪ'ᴠᴇ ᴘʟᴀʏᴇᴅ ᴛʜᴇ ɢᴀᴍᴇ ꜰᴏʀ ᴏᴠᴇʀ ᴀ ʏᴇᴀʀ , ᴛʜᴇ ʙɪɢɢᴇꜱᴛ ʀᴇᴀꜱᴏɴ ᴡʜʏ ɪ'ᴍ ꜱᴛɪʟʟ ɪɴ ᴛʜᴇ ꜰᴀɴᴅᴏᴍ ɪꜱ ʙᴇᴄᴀᴜꜱᴇ ᴏꜰ ᴛʜᴇ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ (ᴍᴏꜱᴛʟʏ ᴋᴀɴᴀᴅᴇ) ᴀɴᴅ ᴛʜᴇ ɢᴀᴍᴇᴘʟᴀʏ.. " <br>
+ " ᴛʜᴇ ɢᴀᴄʜᴀ ꜱʏꜱᴛᴇᴍ ɪꜱ ᴀʙꜱᴏʟᴜᴛᴇ ᴛʀᴀꜱʜ...ɪ ᴘʟᴀʏ ᴜɴᴛɪʟ ᴍʏ ᴇʏᴇꜱ ᴀɴᴅ ʜᴀɴᴅꜱ ʜᴜʀᴛ ꜰᴏʀ ɴᴏᴛʜɪɴɢ... " <br>
+ ᴛʜᴏᴜɢʜ ɪ'ᴅ ꜱᴀʏ ɪ ʟᴏᴠᴇ ꜱᴇɢᴀ ᴏɴᴄᴇ ᴋᴀɴᴀᴅᴇ ᴄᴏᴍᴇꜱ ʜᴏᴍᴇ ʙᴜᴛ *ꜱɪɢʜ* <br>
+ <br>
+𓏵◞ <b>ʙɪᴀꜱ :</b> ʏᴏɪꜱᴀᴋɪ ᴋᴀɴᴀᴅᴇ , ʜɪɴᴏᴍᴏʀɪ ꜱʜɪʜᴏ | ʙᴜᴛ ɪ ʟɪᴋᴇ ᴋᴀɴᴀᴅᴇ ᴍᴏʀᴇ!! <br>
+𓏵◞ <b>ꜱʜɪᴘꜱ :</b> ᴛʏᴀᴋᴛ (ᴛᴏʏᴀ x ᴀᴋɪᴛᴏ) <br>
+ <br>
+ ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
+ <br>
+ 𓏵◞<b>ɪɴᴛᴏ ᴛʜᴇ ꜰᴏʀᴇꜱᴛ ᴏꜰ ꜰɪʀᴇꜰʟɪᴇꜱ' ʟɪɢʜᴛ </b> <br>
+ " ᴛʜɪꜱ ᴍᴀɴɢᴀ / ᴀɴɪᴍᴇ ɪꜱ ꜱᴏ ʟᴏᴠᴇʟʏ ʏᴇꜱ!! ʙᴜᴛ ʜᴏɴᴇꜱᴛʟʏ ɪ ꜰᴇᴇʟ ꜱᴀᴅ ꜰᴏʀ ᴛʜᴇᴍ , ɪꜰ ᴏɴʟʏ ɢɪɴ ʜᴀᴠᴇɴ'ᴛ ᴛᴏᴜᴄʜᴇᴅ ᴛʜᴀᴛ ᴋɪᴅ :( <br>
+  ʙᴜᴛ ᴀᴛ ʟᴇᴀꜱᴛ ᴛʜᴇʏ ᴄᴏᴜʟᴅ ʜᴜɢ ᴇᴀᴄʜ ᴏᴛʜᴇʀ..." <br>
+𓏵◞ <b> ʙɪᴀꜱ :</b> ɴᴏɴᴇ <br>
+ 𓏵◞<b> ꜱʜɪᴘꜱ :</b> ᴏʙᴠɪᴏᴜꜱʟʏ, ɢɪɴ x ʜᴏᴛᴀʀᴜ <br>
+ <br>
+ ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
+ <br>
+𓏵◞ <b> ᴄᴇʟʟꜱ ᴀᴛ ᴡᴏʀᴋ! </b> <br>
+" ɪᴅᴋ ᴛʜɪꜱ ᴍᴀɴɢᴀ / ᴀɴɪᴍᴇ ꜱᴇʀɪᴇꜱ ɪꜱ ᴠᴇʀʏ ᴄᴀᴛᴄʜʏ ꜰᴏʀ ᴍᴇ.. " <br>
+𓏵◞ <b> ʙɪᴀꜱ :</b> ᴇᴏꜱɪɴᴏᴘʜɪʟ , ᴡʜɪᴛᴇ ʙʟᴏᴏᴅ ᴄᴇʟʟ (ᴜ-1146) <br>
+𓏵◞ <b> ʙɪᴀꜱ :</b> ᴡʜɪᴛᴇ ʙʟᴏᴏᴅ ᴄᴇʟʟ (ᴜ-1146) x ʀᴇᴅ ʙʟᴏᴏᴅ ᴄᴇʟʟ (ᴀᴇ-3803) <br>
+ <br>
+ ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
+ <br> 
+ <b> ᴛʜɪꜱ ꜱᴇᴄᴛɪᴏɴ ᴍᴀʏ ʙᴇ ᴜᴘᴅᴀᴛᴇᴅ ᴏʀ ᴇᴅɪᴛᴇᴅ ɪɴ ᴛʜᴇ ꜰᴜᴛᴜʀᴇ. </b>
+ </details> 
+──── ˗ˏˋ♡꒰ʚ・୨୧・ɞ꒱♡ˎˊ˗ ──── <br>
+ <br>
+ <details>
+ <summary>꒰ྀི১ 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 / 𝐠𝐚𝐦𝐞𝐬 𝐢 𝐦𝐢𝐠𝐡𝐭 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐣𝐨𝐢𝐧 / 𝐩𝐥𝐚𝐲 ໒꒱ིྀ<br>
+ ʚ• ˗ˋ୨♡୧ˊ˗ •ɞ</summary>
+ 𓏵◞<b> ᴢᴇɴᴏ ʀᴇᴍᴀᴋᴇ </b>  <br>
+⤷ ʜᴍᴍ ɪ ᴅᴏɴ'ᴛ ᴛʜɪɴᴋ ᴛʜᴇ ᴀʀᴛꜱᴛʏʟᴇ ɪꜱ ᴊᴜꜱᴛ ᴍʏ ᴛʏᴘᴇ , ʙᴇᴄᴀᴜꜱᴇ ɪ ʀᴇᴀʟʟʏ ʀᴇᴀʟʟʏ ʟɪᴋᴇ ꜱᴀɪʜᴀᴛᴇ'ꜱ ᴏɴᴇ ʀɴ , ʙᴜᴛ ᴅᴇꜰɪɴᴇᴛᴇʟʏ ᴡɪʟʟ ᴘʟᴀʏ ɪᴛ ꜱᴏᴍᴇᴅᴀʏ <br>
+<br>
+ 𓏵◞ <b> ɴᴇᴇᴅʏ ꜱᴛʀᴇᴀᴍᴇʀ ᴏᴠᴇʀᴅᴏꜱᴇ </b> <br>
+ ⤷ ɪ'ᴠᴇ ᴘʟᴀʏᴇᴅ ᴛʜɪꜱ ɢᴀᴍᴇ ɪɴ ᴀ ᴡᴇʙꜱɪᴛᴇ...ʙᴜᴛ ɪ ʜᴀᴠᴇɴ'ᴛ ꜰɪɴɪꜱʜᴇᴅ ɪᴛ <br>
+<br>
+ 𓏵◞ <b> ᴍɪꜱɪᴅᴇ </b> <br>
+ ⤷ ɪ'ᴠᴇ ᴋɴᴏᴡɴ ᴛʜɪꜱ ɢᴀᴍᴇ ꜰᴏʀ ᴀ ʟᴏɴɢ ᴛɪᴍᴇ ᴀʟʀᴇᴀᴅʏ , ʙᴜᴛ ᴅɪᴅɴ'ᴛ ʜᴀᴠᴇ ᴛʜᴇ ᴏᴘᴘᴏʀᴛᴜɴɪᴛʏ ᴛᴏ ᴡᴀᴛᴄʜ ᴛʜᴇ ɢᴀᴍᴇᴘʟᴀʏ <br>
+<br>
+ 𓏵◞ <b> ᴅᴏᴋɪ ᴅᴏᴋɪ ʟɪᴛᴇʀᴀᴛᴜʀᴇ ᴄʟᴜʙ </b> <br>
+ ⤷ ʜᴀᴠᴇ ᴀʟʀᴇᴀᴅʏ ᴘʟᴀʏᴇᴅ ꜱᴏᴍᴇ ᴘᴀʀᴛꜱ ᴏꜰ ɪᴛ ᴡɪᴛʜ ᴍʏ ꜰʀɪᴇɴᴅ ᴀɴᴅ ɪ'ʟʟ ᴅᴏᴡɴʟᴏᴀᴅ ɪᴛ ᴛᴏ ᴘʟᴀʏ ꜱᴏᴏɴ! <br>
+<br>
+ 𓏵◞ <b> ᴏᴍᴏʀɪ , ʏᴏᴜʀ ᴛᴜʀɴ ᴛᴏ ᴅɪᴇ , ᴍᴏᴜᴛʜᴡᴀꜱʜɪɴɢ </b> <br>
+ ⤷ ɪ ᴡɪʟʟ ᴡᴀᴛᴄʜ ᴛʜᴇ ɢᴀᴍᴇᴘʟᴀʏ (ʏᴇꜱ ʙᴇᴄᴀᴜꜱᴇ ɪ'ᴍ ʙʀᴏᴋᴇ) <br>
+<br>
+𓏵◞  <b> ʜᴏᴍɪᴄɪᴘʜᴇʀ </b> <br>
+ ⤷ ᴅᴇꜰɪɴᴇᴛᴇʟʏ ɢᴏɴɴᴀ ᴅᴏᴡɴʟᴏᴀᴅ (ɪ ᴊᴜꜱᴛ ʀᴇᴀʟɪᴢᴇᴅ ɪᴛ'ꜱ ꜰʀᴇᴇ ᴏɴ ꜱᴛᴇᴀᴍ!!) <br> 
 </details>
-
-   𓏵‧₊˚ ┊ᛝ Honorable mention!! 
-   //still working on it...//
- I'm still doing ts it's not done!!
+</details> 
+"𝑨𝒏𝒅 𝒕𝒉𝒆𝒔𝒆 𝒂𝒓𝒆 𝒕𝒉𝒆 𝒇𝒂𝒏𝒅𝒐𝒎𝒔, 𝒄𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔, 𝒂𝒏𝒅 𝒔𝒉𝒊𝒑𝒔 𝒕𝒉𝒂𝒕 𝒉𝒐𝒍𝒅 𝒂 𝒔𝒑𝒆𝒄𝒊𝒂𝒍 𝒑𝒍𝒂𝒄𝒆 𝒊𝒏 𝒎𝒚 𝒉𝒆𝒂𝒓𝒕." ♡ <br>
+<br>
+<details>
+ <summary> 𓏵‧₊˚ ┊ᛝ 𝗛𝗼𝗻𝗼𝗿𝗮𝗯𝗹𝗲 𝗺𝗲𝗻𝘁𝗶𝗼𝗻!! <br>
+ "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ" <br>
+ ₊˚︶︶ꔫ︶︶‌｡˚</summary>
+<b> My fellow friends!! </b> <br>
+ @harukiiame <br>
+ @bowbowbowmizu <br>
+ @Sylvan-Flores <br>
+ @zachzaceace <br>
+ @vodkac4anberry <br>
+ @Aninlovly <br>
+ @face2facewedxnce <br>
+ </details>
 
 
 
