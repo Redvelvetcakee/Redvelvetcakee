@@ -178,7 +178,55 @@ ________________________________________________________________________________
  𓏵‧₊˚ ┊ᛝ 𝗙𝗮𝗻𝗱𝗼𝗺𝘀 - 𝗕𝗶𝗮𝘀𝗲𝘀 - 𝗦𝗵𝗶𝗽𝘀 <br>
   "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ" <br>
 ₊˚︶︶ꔫ︶︶‌｡˚ </summary> <br>
-"Work in progress" <br>
+<pre> Some fandoms that have captured my attention lately and comments about it!!
+ Most of my fictional interests come from video games.
+</pre>
+ <br>
+ <b> Saihate Station </b> <br>
+ " I personally think this game is so amazing (╥‸╥) , the illustation and the sprite is very pretty!! It's just my style! <br>
+ Literally I got addicted to it these days , both gameplay and the plot is so so cool!! I feel bad for my baby Shion... " <br>
+ <br> 
+ " I've only played the Saihate Station , but I've watched the Twilight Railway gameplay too...because I'm broke <br>
+ For the Twilight Railway , it changed my perspective on Shion " <br>
+ " p/s: I've also played "Can't escape the train without XXX!?" too hehe..." <br>
+ <br>
+<b>Bias :</b> Tatsunami Shion <br>
+ <b>Ships :</b> Shion x Haru , Haru x Aoi | But I prefer Shion x Haru more <br>
+ <br>
+ ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
+ <br>
+ <b> Danganronpa </b> <br>
+ " I haven't played the game yet , but I've watched the anime + game summary (but honestly it looks kinda boring tho , since it's an old game) <br>
+ But the character's lore really got my attention , pretty good tbh. I'm mostly into the SDR2 series " <br>
+ <br>
+ <b>Bias :</b> Danganronpa 1 : Maizono Sayaka , Celestia Ludenberg (aka Yasuhiro Taeko) <br>
+ Danganronpa 2 : Nanami Chiaki , Komaeda Nagito , Kamukura Izuru <br>
+ Danganronpa v3 : Tojo Kirumi <br>
+ <br>
+ <b>Ships :</b> KomaHina , KamuKoma , HinaNami , KomaNami , KamuNami <br>
+ <br>
+ ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
+ <br>
+ <b> Project Sekai </b> <br>
+ " Well...I've played the game for over a year , the biggest reason why I'm still in the fandom is because of the characters (mostly Kanade) and the gameplay.. <br>
+ " The gacha system is absolute trash...I play until my eyes and hands hurt for nothing... " <br>
+ though I'd say I love Sega once Kanade comes home but *sigh* <br>
+ <br>
+ <b>Bias :</b> Yoisaki Kanade , Hinomori Shiho | but I like Kanade more!! <br>
+ <b> Ships :</b> TyAkt (Toya x Akito) <br>
+ <br>
+ ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
+ <br>
+ <b>Into the Forest of Fireflies' Light </b> <br>
+ " This manga / anime is so lovely yes!! But honestly I feel sad for them , if only Gin haven't touched that kid :( <br>
+  But at least they could hug each other..." <br>
+ <b> Bias :</b> None <br>
+ <b> Ships :</b> Obviously, Gin x Hotaru <br>
+ <br>
+ ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
+ <br>
+ <b> Cells at work! </b> <br>
+ // imma write this later my hands hurt..//
 </details>
 
    𓏵‧₊˚ ┊ᛝ Honorable mention!! 
