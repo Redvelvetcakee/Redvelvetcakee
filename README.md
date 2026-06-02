@@ -57,14 +57,14 @@ ________________________________________________________________________________
  𓏵◞ ɪ ᴍᴀʏ ɴᴏᴛ ᴛᴀʟᴋ ꜱᴏ ᴍᴜᴄʜ ᴀᴛ ꜰɪʀꜱᴛ ʙᴜᴛ ᴡʜᴇɴ ᴡᴇ'ʀᴇ ᴀʀᴇ ᴄʟᴏꜱᴇʀ , ɪ'ʟʟ ʙᴇ ᴘʀᴇᴛᴛʏ ᴛᴀʟᴋᴀᴛɪᴠᴇ. <br>
     <br>
  𓏵◞ ᴀ ꜱᴇɴꜱɪᴛɪᴠᴇ ᴘᴇʀꜱᴏɴ (ɪɢ) ᴀɴ ᴏᴠᴇʀᴛʜɪɴᴋᴇʀ <br>
+ 𓏵◞ ᴀɴᴅ ɪ ᴅᴏɴ'ᴛ ʟɪᴋᴇ ꜱᴡɪᴛᴄʜ ᴅʏɴᴀᴍɪᴄꜱ ꜰᴏʀ ᴍʏ ᴏᴛᴘ. <br>
  𓏵◞ <b>!!ʜᴀꜱ ᴀɴ ᴇxᴛʀᴇᴍᴇ ᴏʙꜱᴇꜱꜱɪᴏɴ ᴡɪᴛʜ ᴍʏ ꜰ/ᴏ , ᴏʀ ᴡɪᴛʜ ᴀ ᴄʜᴀʀᴀᴄᴛᴇʀ ᴛʜᴀᴛ ɪ ᴋɪɴ ᴛᴏ!! <br> </b>
     ᴋᴏᴍᴀᴇᴅᴀ ɴᴀɢɪᴛᴏ , ʏᴏɪꜱᴀᴋɪ ᴋᴀɴᴀᴅᴇ , ᴛᴀᴛꜱᴜɴᴀᴍɪ ꜱʜɪᴏɴ -> (I'm really into Shion lately 
     <br>
     𝗣/𝘀:
    <b> // ꜰ/ᴏ (ꜰɪᴄᴛɪᴏɴᴀʟ ᴏᴛʜᴇʀ) ʀᴇꜰᴇʀꜱ ᴛᴏ ᴀ ꜰɪᴄᴛɪᴏɴᴀʟ ᴄʜᴀʀᴀᴄᴛᴇʀ ꜱᴏᴍᴇᴏɴᴇ ɪꜱ ʀᴏᴍᴀɴᴛɪᴄᴀʟʟʏ ꜱᴇʟꜰ-ꜱʜɪᴘᴘᴇᴅ ᴡɪᴛʜ. <br>
     ᴀ ᴋɪɴɴɪᴇ ɪꜱ ꜱᴏᴍᴇᴏɴᴇ ᴡʜᴏ ꜱᴛʀᴏɴɢʟʏ ʀᴇʟᴀᴛᴇꜱ ᴛᴏ ᴏʀ ꜱᴇᴇꜱ ᴛʜᴇᴍꜱᴇʟᴠᴇꜱ ɪɴ ᴀ ꜰɪᴄᴛɪᴏɴᴀʟ ᴄʜᴀʀᴀᴄᴛᴇʀ. // </b> <br>
-    ᴀɴᴅ ɪ ᴅᴏɴ'ᴛ ʟɪᴋᴇ ꜱᴡɪᴛᴄʜ ᴅʏɴᴀᴍɪᴄꜱ ꜰᴏʀ ᴍʏ ᴏᴛᴘ. <br>
-    <br>
+   <br>
     ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
 <br>
   𓏵◞ ᴍʏ ᴇɴᴇʀɢʏ ɢᴇᴛꜱ ᴅʀᴀɪɴᴇᴅ ᴇᴀꜱɪʟʏ, ᴀɴᴅ ᴀᴛ ᴛʜᴏꜱᴇ ᴛɪᴍᴇꜱ ɪ'ʟʟ ʙᴇᴄᴏᴍᴇ ᴀ ʙɪᴛ ᴅɪꜱᴛᴀɴᴛ ᴏʀ ꜱᴛᴀʏ ᴀᴡꜰᴜʟʟʏ qᴜɪᴇᴛ ᴀʀᴏᴜɴᴅ ʏᴏᴜ. <br>
@@ -90,14 +90,14 @@ ________________________________________________________________________________
    𓏵◞ ɪ ᴠᴇɴᴛ ᴀ ʟᴏᴛ ꜱᴏᴍᴇᴛɪᴍᴇꜱ ᴡʜᴇɴ ᴡᴇ'ʀᴇ ᴄʟᴏꜱᴇ , ʏᴇꜱ... ɪ ʜᴏᴘᴇ ʏᴏᴜ ᴅᴏɴ'ᴛ ᴍɪɴᴅ ᴍᴇ ᴠᴇɴᴛɪɴɢ <br>
    ʙᴜᴛ ɪꜰ ʏᴏᴜ ᴅᴏ ᴍɪɴᴅ , ᴘʟᴇᴀꜱᴇ ᴛᴇʟʟ ᴍᴇ! </br>
    </details> 
-"𝑷𝒍𝒆𝒂𝒔𝒆 𝒕𝒂𝒌𝒆 𝒚𝒐𝒖𝒓 𝒕𝒊𝒎𝒆 𝒓𝒆𝒂𝒅𝒊𝒏𝒈 𝒕𝒉𝒆 𝒔𝒖𝒎𝒎𝒂𝒓𝒚 𝒂𝒃𝒐𝒗𝒆 𝒃𝒆𝒇𝒐𝒓𝒆 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒏𝒈 𝒘𝒊𝒕𝒉 𝒎𝒆..." <br>
+"𝑷𝒍𝒆𝒂𝒔𝒆 𝒕𝒂𝒌𝒆 𝒚𝒐𝒖𝒓 𝒕𝒊𝒎𝒆 𝒓𝒆𝒂𝒅𝒊𝒏𝒈 𝒕𝒉𝒆 𝒔𝒖𝒎𝒎𝒂𝒓𝒚 𝒂𝒃𝒐𝒗𝒆 𝒃𝒆𝒇𝒐𝒓𝒆 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒏𝒈 𝒘𝒊𝒕𝒉 𝒎𝒆" <br>
 <br>
 <br> <details> <summary>
 𓏵‧₊˚ ┊ᛝ 𝗗𝗡𝗜 & 𝗜𝗪𝗖/𝗜𝗪𝗘𝗖 𝗹𝗶𝘀𝘁 <br>
-  "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ"<br>
+  "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ" <br>
  ₊˚︶︶ꔫ︶︶‌｡˚ </summary> <br>
  <details> 
-<summary> <b> I. </b> 𝗗𝗡𝗜 𝗹𝗶𝘀𝘁 <br>
+<summary> <b> I. </b> ꒰ྀི১ &nbsp 𝗗𝗡𝗜 𝗹𝗶𝘀𝘁 &nbsp ໒꒱ིྀ<br>
  ✦. 𝑫𝒐 𝒏𝒐𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕 𝒍𝒊𝒔𝒕 .✦ <br>
 ʚ• ˗ˋ୨♡୧ˊ˗ •ɞ </summary>
  <br>
@@ -126,51 +126,62 @@ ________________________________________________________________________________
  <br>
 
 𓏵◞ <b> ᴀɴᴅ ᴅɴɪ ᴛᴏᴏ ɪꜰ ʏᴏᴜ ᴅᴇꜰᴇɴᴅ ᴏʀ ꜱᴜᴘᴘᴏʀᴛ ᴀɴʏ ᴏꜰ ᴀʙᴏᴠᴇ. </b>
-</details>
-
+</details> 
+──── ˗ˏˋ♡꒰ʚ・୨୧・ɞ꒱♡ˎˊ˗ ──── <br>
+<br> 
 <details>
-<summary> <b> II. </b> 𝗜𝗪𝗘𝗖/𝗜𝗪𝗖 𝗹𝗶𝘀𝘁 <br>
+<summary> <b> II. </b> ꒰ྀི১ &nbsp 𝗜𝗪𝗘𝗖/𝗜𝗪𝗖 𝗹𝗶𝘀𝘁 &nbsp ໒꒱ིྀ <br>
 ✦. 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕 𝒘𝒊𝒕𝒉 𝒆𝒙𝒕𝒓𝒆𝒎𝒆 𝒄𝒂𝒖𝒕𝒊𝒐𝒏 / 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕 𝒘𝒊𝒕𝒉 𝒄𝒂𝒖𝒕𝒊𝒐𝒏 𝒍𝒊𝒔𝒕 .✦ <br>
  ʚ• ˗ˋ୨♡୧ˊ˗ •ɞ</summary>
- IWEC - Interact with extreme caution <br>
- <br>
- People who have the same f/os as me , as I said before , I'm a non-sharing yumeshipper <br>
- Below 12 years old and above 18 years old <br>
- ⤷ Unless I've already known you before <br>
- <br>
-People who are into switch dynamics for my OTP. <br>
- All x char shippers <br>
- <br>
-!!For Saihate station : Haru x Shion shippers!! <br>
-⤷ I'm sorry but I prefer Shion x Haru... <br>
- Shion on top yayay !!
-<br>
-Please IWEC if you're my classmate , or schoolmate <br>
-Regardless how close we are , please be careful when you wanna interact with me on social space + especially when I'm with my online friends.. <br>
-<br>
-IWC - Interact with caution <br>
-People who are short-tempered (anger issues) <br>
- <br>
-"System" <br>
-Since I have lack of knowledge on this topic and I might as well offend you , so I prefer that we don't interact with each other in the first place <br>
-This is a relatively new concept for me... so I don't know if I can interact with you either. <br>
-<br>
-People who are taken - both in games and in real life
-I am pretty afraid about talking to people who are taken , because I might cause some misunderstandings...
-<br>
-People who are male (especially 18+) !!
  
+ <pre> !!𝐂𝐀𝐔𝐓𝐈𝐎𝐍!!
+  𝐓𝐡𝐢𝐬 𝐥𝐢𝐬𝐭 𝐝𝐨𝐞𝐬 𝐧𝐨𝐭 𝐚𝐩𝐩𝐥𝐲 𝐭𝐨 𝐞𝐯𝐞𝐫𝐲𝐨𝐧𝐞 𝐈'𝐯𝐞 𝐤𝐧𝐨𝐰𝐧 𝐛𝐞𝐟𝐨𝐫𝐞! 
+ <b> // ɪɴᴄʟᴜᴅᴇꜱ ʙᴏᴛʜ ɪᴡᴇᴄ & ɪᴡᴄ ʟɪꜱᴛ // </b>
+ ꒰ঌ૮ ྀིᴗ͈ . ᴗ͈ ྀིა໒꒱ </pre> <br>
+
+ 𝑰𝑾𝑬𝑪 - 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕 𝒘𝒊𝒕𝒉 𝒆𝒙𝒕𝒓𝒆𝒎𝒆 𝒄𝒂𝒖𝒕𝒊𝒐𝒏 ──── ۶ৎˎˊ˗ <br>
+ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. <br>
+ <br>
+𓏵◞ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ʜᴀᴠᴇ ᴛʜᴇ ꜱᴀᴍᴇ ꜰ/ᴏꜱ ᴀꜱ ᴍᴇ , ᴀꜱ ɪ ꜱᴀɪᴅ ʙᴇꜰᴏʀᴇ , ɪ'ᴍ ᴀ ɴᴏɴ-ꜱʜᴀʀɪɴɢ ʏᴜᴍᴇꜱʜɪᴘᴘᴇʀ <br>
+𓏵◞ ʙᴇʟᴏᴡ 12 ʏᴇᴀʀꜱ ᴏʟᴅ ᴀɴᴅ ᴀʙᴏᴠᴇ 18 ʏᴇᴀʀꜱ ᴏʟᴅ <br>
+ <br>
+𓏵◞ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴀʀᴇ ɪɴᴛᴏ ꜱᴡɪᴛᴄʜ ᴅʏɴᴀᴍɪᴄꜱ ꜰᴏʀ ᴍʏ ᴏᴛᴘ. <br>
+𓏵◞ ᴀʟʟ x ᴄʜᴀʀ ꜱʜɪᴘᴘᴇʀꜱ <br>
+ <br>
+𓏵◞ !!ꜰᴏʀ ꜱᴀɪʜᴀᴛᴇ ꜱᴛᴀᴛɪᴏɴ : ʜᴀʀᴜ x ꜱʜɪᴏɴ ꜱʜɪᴘᴘᴇʀꜱ!! <br>
+⤷ ɪ'ᴍ ꜱᴏʀʀʏ ʙᴜᴛ ɪ ᴘʀᴇꜰᴇʀ ꜱʜɪᴏɴ x ʜᴀʀᴜ... <br>
+ ꜱʜɪᴏɴ ᴏɴ ᴛᴏᴘ ʏᴀʏᴀʏ !! <br>
+<br>
+𓏵◞ ᴘʟᴇᴀꜱᴇ ɪᴡᴇᴄ ɪꜰ ʏᴏᴜ'ʀᴇ ᴍʏ ᴄʟᴀꜱꜱᴍᴀᴛᴇ , ᴏʀ ꜱᴄʜᴏᴏʟᴍᴀᴛᴇ <br>
+⤷ ʀᴇɢᴀʀᴅʟᴇꜱꜱ ʜᴏᴡ ᴄʟᴏꜱᴇ ᴡᴇ ᴀʀᴇ , ᴘʟᴇᴀꜱᴇ ʙᴇ ᴄᴀʀᴇꜰᴜʟ ᴡʜᴇɴ ʏᴏᴜ ᴡᴀɴɴᴀ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ ᴏɴ ꜱᴏᴄɪᴀʟ ꜱᴘᴀᴄᴇ + ᴇꜱᴘᴇᴄɪᴀʟʟʏ ᴡʜᴇɴ ɪ'ᴍ ᴡɪᴛʜ ᴍʏ ᴏɴʟɪɴᴇ ꜰʀɪᴇɴᴅꜱ.. <br>
+<br>
+─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ─── <br>
+<br>
+𝑰𝑾𝑪 - 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕 𝒘𝒊𝒕𝒉 𝒄𝒂𝒖𝒕𝒊𝒐𝒏 ──── ۶ৎˎˊ˗ <br>
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. <br>
+<br>
+𓏵◞ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴀʀᴇ ꜱʜᴏʀᴛ-ᴛᴇᴍᴘᴇʀᴇᴅ (ᴀɴɢᴇʀ ɪꜱꜱᴜᴇꜱ) <br>
+𓏵◞ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴀʀᴇ ᴍᴀʟᴇ (ᴇꜱᴘᴇᴄɪᴀʟʟʏ 18+) !! <br>
+ <br>
+𓏵◞ <b> "ꜱʏꜱᴛᴇᴍ" </b> <br>
+⤷ ꜱɪɴᴄᴇ ɪ ʜᴀᴠᴇ ʟᴀᴄᴋ ᴏꜰ ᴋɴᴏᴡʟᴇᴅɢᴇ ᴏɴ ᴛʜɪꜱ ᴛᴏᴘɪᴄ ᴀɴᴅ ɪ ᴍɪɢʜᴛ ᴀꜱ ᴡᴇʟʟ ᴏꜰꜰᴇɴᴅ ʏᴏᴜ , <br>
+ꜱᴏ ɪ ᴘʀᴇꜰᴇʀ ᴛʜᴀᴛ ᴡᴇ ᴅᴏɴ'ᴛ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴇᴀᴄʜ ᴏᴛʜᴇʀ ɪɴ ᴛʜᴇ ꜰɪʀꜱᴛ ᴘʟᴀᴄᴇ <br>
+ᴛʜɪꜱ ɪꜱ ᴀ ʀᴇʟᴀᴛɪᴠᴇʟʏ ɴᴇᴡ ᴄᴏɴᴄᴇᴘᴛ ꜰᴏʀ ᴍᴇ... ꜱᴏ ɪ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ɪꜰ ɪ ᴄᴀɴ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ʏᴏᴜ ᴇɪᴛʜᴇʀ. <br>
+<br>
+𓏵◞ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴀʀᴇ ᴛᴀᴋᴇɴ - ʙᴏᴛʜ ɪɴ ɢᴀᴍᴇꜱ ᴀɴᴅ ɪɴ ʀᴇᴀʟ ʟɪꜰᴇ <br>
+⤷ ɪ ᴀᴍ ᴘʀᴇᴛᴛʏ ᴀꜰʀᴀɪᴅ ᴀʙᴏᴜᴛ ᴛᴀʟᴋɪɴɢ ᴛᴏ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴀʀᴇ ᴛᴀᴋᴇɴ , ʙᴇᴄᴀᴜꜱᴇ ɪ ᴍɪɢʜᴛ ᴄᴀᴜꜱᴇ ꜱᴏᴍᴇ ᴍɪꜱᴜɴᴅᴇʀꜱᴛᴀɴᴅɪɴɢꜱ... </br>
+</details>  
+</details>
+"𝑬𝒗𝒆𝒓𝒚𝒐𝒏𝒆 𝒉𝒂𝒔 𝒕𝒉𝒆𝒊𝒓 𝒐𝒘𝒏 𝒄𝒐𝒎𝒇𝒐𝒓𝒕 𝒛𝒐𝒏𝒆. 𝑻𝒉𝒆𝒔𝒆 𝒉𝒂𝒑𝒑𝒆𝒏 𝒕𝒐 𝒃𝒆 𝒎𝒊𝒏𝒆" <br>
+<br>
+<br> <details> <summary>
+ 𓏵‧₊˚ ┊ᛝ 𝗙𝗮𝗻𝗱𝗼𝗺𝘀 - 𝗕𝗶𝗮𝘀𝗲𝘀 - 𝗦𝗵𝗶𝗽𝘀 <br>
+  "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ" <br>
+₊˚︶︶ꔫ︶︶‌｡˚ </summary> <br>
+"Work in progress" <br>
 </details>
 
-
-
- 
-</details>
-
-   𓏵‧₊˚ ┊ᛝ Fandoms - Biases - Ships <br>
-   //still working on it...//
-
-   𓏵‧₊˚ ┊ᛝ Honorable mention!! <br>
+   𓏵‧₊˚ ┊ᛝ Honorable mention!! 
    //still working on it...//
  I'm still doing ts it's not done!!
 
