@@ -256,11 +256,10 @@ ________________________________________________________________________________
  "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ" <br>
  ₊˚︶︶ꔫ︶︶‌｡˚</summary>
 <b> My fellow friends!! </b> <br>
- @harukiiame <br>
- @bowbowbowmizu <br>
- @Sylvan-Flores <br>
- @zachzaceace <br>
- @vodkac4anberry <br>
+ @harukiiame <br> 
+ @bowbowbowmizu <br> 
+ @YANDERE3 <br>
+ @empurpled
  @Aninlovly <br>
  @face2facewedxnce <br>
  </details> 
