@@ -259,7 +259,6 @@ ________________________________________________________________________________
 <b> My fellow friends!! </b> <br>
  @harukiiame <br> 
  @bowbowbowmizu <br> 
- @empurpled <br>
  @Aninlovly <br>
  @face2facewedxnce <br>
  </details> 
