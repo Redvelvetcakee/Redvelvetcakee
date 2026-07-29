@@ -259,9 +259,9 @@ ________________________________________________________________________________
 <b> My fellow friends!! </b> <br>
  @harukiiame <br> 
  @bowbowbowmizu <br> 
- @Ayningg <br>
+ @ayningg <br>
  @Sylvan-Flores <br>
- @@ace0fcups <br>
+ @ace0fcups <br>
  @zachzaceace <br>
  </details> 
  "𝑻𝒉𝒆𝒚'𝒓𝒆 𝒕𝒂𝒈𝒈𝒆𝒅 𝒊𝒏 𝒎𝒚 𝒂𝒄𝒄𝒐𝒖𝒏𝒕 (𝒍𝒐𝒄𝒂𝒕𝒊𝒐𝒏)"
