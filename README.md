@@ -257,13 +257,14 @@ ________________________________________________________________________________
  "ᴘʀᴇꜱꜱ ᴛᴏ ʀᴇᴀᴅ , ᴘʀᴇꜱꜱ ᴀɢᴀɪɴ ᴛᴏ ᴄᴏʟʟᴀᴘꜱᴇ ɪᴛ" <br>
  ₊˚︶︶ꔫ︶︶‌｡˚</summary>
 <b> My fellow friends!! </b> <br>
- @harukiiame <br> 
- @bowbowbowmizu <br> 
- @ayningg <br>
- @OLD-D0LL <br>
- @Sylvan-Flores <br>
- @ace0fcups <br>
- @zachzaceace <br>
+ 
+ [Haruki](https://github.com/harukiiame) <br> 
+ [Anki](https://github.com/bowbowbowmizu) <br> 
+ [Anin](https://github.com/ayningg) <br>
+ [Katie senpai](https://github.com/OLD-D0LL) <br>
+ [Sylvan - dad](https://github.com/Sylvan-Flores) <br>
+ [Sio](https://github.com/ace0fcups) <br>
+ [Zach/Ace](https://github.com/zachzaceace) <br>
  </details> 
  "𝑻𝒉𝒆𝒚'𝒓𝒆 𝒕𝒂𝒈𝒈𝒆𝒅 𝒊𝒏 𝒎𝒚 𝒂𝒄𝒄𝒐𝒖𝒏𝒕 (𝒍𝒐𝒄𝒂𝒕𝒊𝒐𝒏)"
 
